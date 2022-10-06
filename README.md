@@ -1,1 +1,0 @@
-# atividade06outpreduuu
